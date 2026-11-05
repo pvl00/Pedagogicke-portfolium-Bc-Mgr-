@@ -1,0 +1,1 @@
+# Pedagogicke-portfolium-Bc-Mgr-
